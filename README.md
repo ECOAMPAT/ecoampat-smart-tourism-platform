@@ -1,0 +1,1 @@
+# ecoampat-smart-tourism-platform
